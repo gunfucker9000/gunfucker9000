@@ -9,7 +9,7 @@ hi its me alto, the guy from the gtcs,
   also the guy who gets a headache from literally anything
   </p>
   <p align="center">
-(check my status from time to time, i update that ALOT)
+(check status before interacting)
   </p>
   <p align="center">
  https://youtu.be/Rq240iR4oCE
