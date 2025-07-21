@@ -20,6 +20,6 @@
  https://youtu.be/Rq240iR4oCE
   </p>
    <p align="center">
-<sup><sub>if you dont like me, block me, dont waste your time trying to argue with me and my jokes</sub></sup>
+<sub>if you dont like me, block me, dont waste your time trying to argue with me and my jokes</sub>
   </p>
 
