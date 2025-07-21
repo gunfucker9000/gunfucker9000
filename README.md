@@ -11,17 +11,15 @@
   hi its me alto, the guy from the gtcs, 
   also the guy who gets a headache from literally anything
   </p>
-      <p align="center">
-
-  </p>
+   
+  
   <p align="center">
 (check status before interacting)
   </p>
     <p align="center">
  https://youtu.be/Rq240iR4oCE
   </p>
-      <p align="center">
-if you dont like me, block me, dont waste your time trying to argue with me
+   <p align="center">
+<sup><sub>if you dont like me, block me, dont waste your time trying to argue with me and my jokes</sub></sup>
   </p>
-  
 
