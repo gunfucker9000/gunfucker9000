@@ -11,6 +11,9 @@ hi its me alto, the guy from the gtcs,
   <p align="center">
 (check status before interacting)
   </p>
+    <p align="center">
+honestly really out of it most of the time, you'll usually get emojis or some slang in response
+  </p>
   <p align="center">
  https://youtu.be/Rq240iR4oCE
   </p>
