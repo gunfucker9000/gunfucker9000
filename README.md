@@ -10,3 +10,7 @@ hi its me alto, the guy from the gtcs
   <p align="center">
 https://youtu.be/Rq240iR4oCE?si=hG2OL5iZ6N007B3-
   </p>
+  https://enchantments.carrd.co/assets/images/gallery21/ecd9d227.png?v=5c8435d5
+  https://svndeco.carrd.co/assets/images/gallery03/52118cbd.jpg?v=1a19e83b
+  https://svndeco.carrd.co/assets/images/gallery03/44e49519.png?v=1a19e83b
+![BRO_HOW_DO_I_WORK_THIS](https://komarev.com/ghpvc/?username=aesopduo&color=lightgrey)
