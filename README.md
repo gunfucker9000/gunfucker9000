@@ -5,7 +5,7 @@
   <img src="https://svndeco.carrd.co/assets/images/gallery03/44e49519.png?v=1a19e830" width="500" height="500" />
 </p>
 
-<img align="left" width="200" height="200" src="https://i.imgur.com/vfXyrEg.png">  <img align="right" width="200" height="200" src="https://i.imgur.com/8lC3AlE.png"> 
+<img align="left" width="200" height="200" src="https://i.imgur.com/G75B9Af.png">  <img align="right" width="200" height="200" src="https://i.imgur.com/66aAJhj.png"> 
 <p align="center">
 <p align="center">
   hi its me alto, the guy from the gtcs, 
