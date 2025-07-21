@@ -5,7 +5,8 @@
   <img src="https://svndeco.carrd.co/assets/images/gallery03/44e49519.png?v=1a19e83b" width="500" height="500" />
 </p>
 <p align="center">
-hi its me alto, the guy from the gtcs, also the guy who gets a headache from literally everything
+hi its me alto, the guy from the gtcs, 
+  also the guy who gets a headache from literally anything
   </p>
   <p align="center">
 (check my status from time to time, i update that ALOT)
