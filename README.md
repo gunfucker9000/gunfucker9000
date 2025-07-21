@@ -18,4 +18,4 @@ hi its me alto, the guy from the gtcs,
  https://youtu.be/Rq240iR4oCE
   </p>
 
-<img align="left" width="100" height="100" src="https://i.imgur.com/D5wuM8U.jpeg"> <img align="right" width="100" height="100" src="https://i.imgur.com/ztJggvO.jpeg">
+<img align="left" width="200" height="200" src=""> <img align="right" width="200" height="200" src="https://i.imgur.com/8lC3AlE.png">
