@@ -9,7 +9,7 @@ hi its me alto, the guy from the gtcs,
   also the guy who gets a headache from literally anything
   </p>
       <p align="center">
-honestly really out of it most of the time, you'll usually get emojis or some slang in response
+
   </p>
   <p align="center">
 (check status before interacting)
