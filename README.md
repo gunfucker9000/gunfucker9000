@@ -7,3 +7,6 @@ hi its me alto, the guy from the gtcs
   <p align="center">
 (check my status from time to time, i update that ALOT)
   </p>
+  <p align="center">
+https://youtu.be/Rq240iR4oCE?si=hG2OL5iZ6N007B3-
+  </p>
