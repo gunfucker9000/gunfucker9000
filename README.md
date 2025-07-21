@@ -3,4 +3,7 @@
 </p>
 <p align="center">
 hi its me alto, the guy from the gtcs
-</p>
+  </p>
+  <p align="center">
+(check my status from time to time, i update that ALOT)
+  </p>
