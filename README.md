@@ -22,8 +22,7 @@
       <p align="center">
       </p>
    <p align="center">
-<sub>if you dont like me, block me, dont waste your time trying to argue with me and my jokes
-(page best viewed on desktop)</sub>
+<sub>if you dont like me, block me, dont waste your time trying to argue with me and my jokes</sub>
   </p>
     <p align="center">
 <sub>(page best viewed on desktop)</sub>
