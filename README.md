@@ -8,8 +8,7 @@
 <img align="left" width="200" height="200" src="https://i.imgur.com/G75B9Af.png">  <img align="right" width="200" height="200" src="https://i.imgur.com/66aAJhj.png"> 
 <p align="center">
 <p align="center">
-  hi its me alto, the guy from the gtcs, 
-  also the guy who gets a headache from literally anything
+  hi it me THE parkour god at your service!
   </p>
    
   
@@ -25,7 +24,7 @@
       <p align="center">
       </p>
    <p align="center">
-<sub>if you dont like me, block me, dont waste your time trying to argue with me</sub>
+<sub>>:)</sub>
   </p>
     <p align="center">
 <sub>(page best viewed on desktop)</sub>
