@@ -1,8 +1,8 @@
 <p align="center">
-   <img src="https://i.pinimg.com/736x/51/ff/8f/51ff8fae73209df4f4e012bdee49bc81.jpg"  width="500" height="500" />
+   <img src="https://i.pinimg.com/1200x/ce/02/3d/ce023d10c68540e65cb04a0eb974b15c.jpg"  width="500" height="500" />
 </p>
 <p align="center">
-   *THE Parkour God at your service!*
+   
 <p align="center">
   https://rentry.co/evbeeeee
 </p>
